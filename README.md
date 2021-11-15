@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DinoPlush
 - 👀 I’m interested in music and anime jijijij
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate and on anything game related
+- 💞️ I’m looking to collaborate and learn on anything game related
 - 📫 How to reach me: INsTAGRAM: c0c0sauria
 
 <!---
